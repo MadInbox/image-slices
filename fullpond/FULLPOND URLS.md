@@ -20,7 +20,7 @@
 
 
 **Unsubscribe**: https://fullpond.us12.list-manage.com/unsubscribe?u=783192b1b81be780c4d2c7502&id=ef458eb4d7&t=b&e=[UNIQID]&c=0798e95e5f
-
+**privacy policy**: https://fullpond.us12.list-manage.com/profile?u=783192b1b81be780c4d2c7502&id=ef458eb4d7&e=4c569068a5
 
 
 
